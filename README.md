@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do guilherme-crepardi 😁
+## Bem-vindo(a) ao perfil do guilherme-crepardi
 
  <div>
    <a href="https://github.com/guilherme-crepardi">
